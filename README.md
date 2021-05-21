@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @willi-bernes!
 - 👀 I’m interested in App Development.
-- 📫 You can reach me through my webpage (www.willibernes.de) or just write me an email (contact@willibernes.de)
+- 📫 Check out my webpage (www.willibernes.de) or text me via email (contact@willibernes.de)!
